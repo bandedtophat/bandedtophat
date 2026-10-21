@@ -10,6 +10,6 @@ IDIOTS BTW
 07:28[Soldier] [chance] ✦ 777— Itrapped and mafioso let me #wifedat
 07:28[add level 100 g666 to match] I'm starting to wonder if you guys smoke like 90k packs of cocaine then join pt and disc
 07:33[contractee] my body is ready 07:19[Soldier] Chance kun don't block us~~~~~~~~~~ 07:20[Soldier] erm actually I'm a nonsharing slurs yumeshipper and I get uncomfortable when your talking about MY f/o 22:47[mafioso] thinks: touches*~~~~
-
+23:23[Boy why are u so mysterious] WHY ARE YOU BALD AND BUTTNAKED 01:56[PAW "" 。 🐇 ◟ appr . mafioso] guys an ALPHA... is talking. listen and learn kittens whiskers. 01:57[PAW "" 。 🐇 ◟ appr . mafioso] DO NOT SNIFF MY ASS 
   
 </p>
